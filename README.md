@@ -7,5 +7,5 @@ Philology/Module3-4
 + There are more than **500** characters. The mostly known for every reader are Natasha Rostova, Andrei Bolkonskiy, Pieer Besuchov.
 + The narration of the novel exists between two spheres: **War** and **Peace**. The charachters are also devided to two sides.
 + The major events as Napoleonic wars are reflected in the novel.
-![N](https://www.google.ru/search?newwindow=1&rlz=1C1GGRV_enKG795KG795&biw=1242&bih=553&tbm=isch&sa=1&ei=_81EXKa1K8iOmgXhuazACQ&q=%D0%B2%D0%BE%D0%B9%D0%BD%D0%B0+%D0%B8+%D0%BC%D0%B8%D1%80&oq=%D0%B2%D0%BE%D0%B9%D0%BD%D0%B0+&gs_l=img.3.0.0i67l2j0l8.25561.29151..30199...0.0..0.366.1392.0j2j3j1......2....1..gws-wiz-img.....0.TayUs4NdAqc#imgrc=M9JFt1U4cSpTdM:)
+![N](https://www.google.ru/search?newwindow=1&rlz=1C1GGRV_enKG795KG795&biw=1242&bih=553&tbm=isch&sa=1&ei=_81EXKa1K8iOmgXhuazACQ&q=%D0%B2%D0%BE%D0%B9%D0%BD%D0%B0+%D0%B8+%D0%BC%D0%B8%D1%80&oq=%D0%B2%D0%BE%D0%B9%D0%BD%D0%B0+&gs_l=img.3.0.0i67l2j0l8.25561.29151..30199...0.0..0.366.1392.0j2j3j1......2....1..gws-wiz-img.....0.TayUs4NdAqc#imgrc=M9JFt1U4cSpTdM:.jpeg "Wae and peace")
 
