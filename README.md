@@ -7,5 +7,5 @@ Philology/Module3-4
 + There are more than **500** characters. The mostly known for every reader are Natasha Rostova, Andrei Bolkonskiy, Pieer Besuchov.
 + The narration of the novel exists between two spheres: **War** and **Peace**. The charachters are also devided to two sides.
 + The major events as Napoleonic wars are reflected in the novel.
-![Natasha Rostova, Andrey Bolkonskiy](https://buklya.com/l-n-tolstoj-vojna-i-mir.html)
-![The first edition](https://www.google.ru/search?q=%D0%B2%D0%BE%D0%B9%D0%BD%D0%B0+%D0%B8+%D0%BC%D0%B8%D1%80+%D0%BF%D0%B5%D1%80%D0%B2%D0%BE%D0%B5+%D0%B8%D0%B7%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5&newwindow=1&rlz=1C1GGRV_enKG795KG795&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjQk_LQjv3fAhUiiKYKHTdtAZUQ_AUIDigB&biw=1242&bih=553#imgrc=MtK6pRxfhTMQGM:jpeg)
+![Natasha Rostova, Andrey Bolkonskiy](https://buklya.com/l-n-tolstoj-vojna-i-mir.html.jpeg)
+![The first edition](http://www.gift-books.ru/product_info.php?products_id=1606.jpeg)
