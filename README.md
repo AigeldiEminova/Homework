@@ -7,5 +7,5 @@ Philology/Module3-4
 + There are more than **500** characters. The mostly known for every reader are Natasha Rostova, Andrei Bolkonskiy, Pieer Besuchov.
 + The narration of the novel exists between two spheres: **War** and **Peace**. The charachters are also devided to two sides.
 + The major events as Napoleonic wars are reflected in the novel.
-![N](https://www.kp.ru/daily/26526.3/3542932/)
+![N](https://www.kp.ru/daily/26526.3/3542932/ "WP")
 
